@@ -1,11 +1,6 @@
 asdasfsaffdfsds
 owroasdwrwesenbsdddsaasaewerxxeesxs fnbbbdasxsn nasddadassa# lddearning-demommafa
 This is my first Git Repositwwory34jhgh
-Author - Zakria wwsdfsdrty
-sascc54ddswerjgasdasd
-
-bccdaddsawerwerwrwerwrwm,asdasddaadsfsf
-nbbbbbbbbbbasdasdewe
-asdas 
+Auth
 jhjksdfsdg
 kj
