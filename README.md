@@ -1,8 +1,7 @@
 assd
 adasdasasdasfsaffdfsds
 owroasdwrwesenbsdddsaasaewerxxeesxs fnbbbdasxsn nasddadassa# lddearning-demommafa
-This is my first Git Repositwadfafwory34jhgh
-Authasdasasd
+aasasdAuthasdasasd
 jhjksdfsdgasas
 kjsasasadasd
 asdasd
